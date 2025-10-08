@@ -1,1 +1,1 @@
-# Team work accomplishes more
+# Team work accomplishes more.
